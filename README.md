@@ -4,8 +4,9 @@ Oi tudo bem, e aí?
 
 Oiiiiii
 
-Olá, todo bien, como estás?
 
-Olááááá
+Hi how are you, whats up?
+
+Hiiiiii
 
 
